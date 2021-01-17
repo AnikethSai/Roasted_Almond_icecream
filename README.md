@@ -1,1 +1,3 @@
-# Roasted_Almond_icecream
+# Recipe for Roasted Almond Icream
+
+# Credits: Sabbu's Kitchen
